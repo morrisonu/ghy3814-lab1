@@ -8,7 +8,7 @@ Aspiring forestry and natural resource professional with a passion for using geo
 ## Education
 
 BS Sustainable Development, GIS Certificate, December 2020  
-Appalachian State University
+Appalachian State University  
 Boone, NC, USA
 
 ## Work Experience
@@ -24,7 +24,7 @@ Boone, NC, USA
 
 
 **Gardener**
-[Appalachian and the Community Together (ACT)](https://act.appstate.edu) - Federal Work Study. Boone, NC.
+[Appalachian and the Community Together (ACT)](https://act.appstate.edu) - Federal Work Study.  Boone, NC.
 _September 2017 - May 2018_
 * Maintained the gardens: weeding, watering, mulching and planting.
 * Built and maintained compost mounds
@@ -33,16 +33,16 @@ _September 2017 - May 2018_
 
 ### Volunteer Experience
 
-**[Willing Workers on Organic Farms](https://wwoof.net) (WWOOF) Spain**
-Tarbena, Alicante, Spain
+**[Willing Workers on Organic Farms](https://wwoof.net) (WWOOF) Spain**  
+Tarbena, Alicante, Spain  
 _July 2018_
 * Maintained a small vegetable garden
 * Stacked and chopped firewood for the winter
 * Rebuilt stone terraces
 * Pruned and rehabilitated olive trees
 
-**WWOOF France**
-Sainte-Colombe, France
+**WWOOF France**  
+Sainte-Colombe, France  
 _June 2018_
 * Harvested produce and flowers grown on the farm
 * Learned how to herd sheep across pastures
