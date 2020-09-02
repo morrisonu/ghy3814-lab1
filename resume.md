@@ -7,7 +7,7 @@ Aspiring forestry and natural resource professional with a passion for using geo
 
 ## Education
 
-BS Sustainable Development, GIS Certificate, December 2020
+BS Sustainable Development, GIS Certificate, December 2020  
 Appalachian State University
 Boone, NC, USA
 
