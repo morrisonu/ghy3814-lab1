@@ -14,7 +14,7 @@ Boone, NC, USA
 ## Work Experience
 
 **General Labor**
-[Morrison Building Company](https://www.tfguild.org/companies/morrison-building-company), Asheville NC.
+[Morrison Building Company](https://www.tfguild.org/companies/morrison-building-company), Asheville NC.    
 *December 2017 to Present*
 * Push, lift or carry timber or other buidling materials weighing up to 100 pounds
 * Operating power tools
@@ -24,7 +24,7 @@ Boone, NC, USA
 
 
 **Gardener**
-[Appalachian and the Community Together (ACT)](https://act.appstate.edu) - Federal Work Study.  Boone, NC.
+[Appalachian and the Community Together (ACT)](https://act.appstate.edu) - Federal Work Study.  Boone, NC.  
 _September 2017 - May 2018_
 * Maintained the gardens: weeding, watering, mulching and planting.
 * Built and maintained compost mounds
